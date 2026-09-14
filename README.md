@@ -17,7 +17,7 @@
 
 ## Me mostly of the day 😂 
 <p align="center"> <img src="https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif" alt="Keyboard cat celebrating" width="400"/> </p>
-The day last 24 hours and I'm 23.5 hours a day in my laptop! 🤓
+The day lasts 24 hours and I'm 23.5 hours a day in my laptop! 🤓
  
 ## 🛠️ Tech Stack
  
